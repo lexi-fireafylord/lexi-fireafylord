@@ -9,3 +9,6 @@ some characters i REALLY LIKE:
 -objectified aww aww: dynamite, mushroom, minty, razor, dragonscale.
 -murder drones: V, uzi, N.
 ok thats all for now bye ❤
+
+
+![GlaV5WvXQAAaCJW](https://github.com/user-attachments/assets/66b317e0-2f20-4e32-b5db-e6d391421835)
