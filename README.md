@@ -13,4 +13,3 @@ ok thats all for now bye ❤
 
 
 ![GlaV5WvXQAAaCJW](https://github.com/user-attachments/assets/66b317e0-2f20-4e32-b5db-e6d391421835)
-![BadwareFrontView](https://github.com/user-attachments/assets/d7ec1346-86b9-4436-ba79-f203dce07271)
