@@ -1,6 +1,5 @@
 hi! abuot me
 
-like i mentioned im 13 so im beggign you dont be weird 😭😭😭😢😢
 umm umm i really like bfdi, objectified, forsaken (kinda), dandys world (also kind of), murder drones, dod and regretevator but i dont really engage with the fandoms. ESPECIALLY forsaken.
 i like drwaing except i suck at it but its ok..
 some characters i REALLY LIKE:
@@ -8,7 +7,7 @@ some characters i REALLY LIKE:
 -bfdi: firey, leafy, bomby, ruby, match, pencil, puffball, lightning, flower, needle.
 -objectified aww aww: dynamite, mushroom, minty, razor, dragonscale.
 -murder drones: V, uzi, N.
--dod: badware, harken, killbot.
+-dod: badware, harken, killbot, arftul.
 ok thats all for now bye ❤
 
 
