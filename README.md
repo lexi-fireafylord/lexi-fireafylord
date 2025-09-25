@@ -1,4 +1,4 @@
-hi! abuot me
+abuot me ??
 
 umm umm i really like bfdi, objectified, forsaken (kinda), dandys world (also kind of), murder drones, dod and regretevator but i dont really engage with the fandoms. ESPECIALLY forsaken.
 i like drwaing except i suck at it but its ok..
