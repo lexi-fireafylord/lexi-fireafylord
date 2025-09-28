@@ -7,7 +7,7 @@ some characters i REALLY LIKE:
 -bfdi: firey, leafy, bomby, ruby, match, pencil, puffball, lightning, flower, needle.
 -objectified aww aww: dynamite, mushroom, minty, razor, dragonscale.
 -murder drones: V, uzi, N.
--dod: badware, harken, killbot, arftul.
+-dod: badware, arftul, devesto and mequot💀💀💀💀.
 ok thats all for now bye ❤
 
 
