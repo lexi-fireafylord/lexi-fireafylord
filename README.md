@@ -1,6 +1,5 @@
-i love artful so much hes m everything i love him i want him DEAD 😢😢😢
-
+hi.. hello.. i am the one and only lexi (heavy jok)
+ im currently in the dod and osc fandom.. they are my main ones but im also in the regretevator fandom.
+   i really love artful if you couldnt tell. i guess i kinda like pursuer too 😂😂 (EWW PURSUER DIE DIE)
+	   ok thats all byebye
 ![die-of-death-artful](https://github.com/user-attachments/assets/a469e2b0-6b8f-42cb-b38a-60182fef2f9b)
-![ArtfulCopywriteUse](https://github.com/user-attachments/assets/508f7d0f-129d-4ef2-91b2-94196cb5f7e7)
-
-he is so hot brah 🤤
