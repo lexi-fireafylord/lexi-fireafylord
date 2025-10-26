@@ -1,5 +1,5 @@
 hi.. hello.. i am the one and only lexi (heavy jok)
- im currently in the dod and osc fandom.. they are my main ones but im also in the regretevator fandom.
+ im currently in the dod, osc and dick figures fandom.. they are my main ones but im also in the regretevator fandom.
    i really love artful if you couldnt tell. i guess i kinda like pursuer and mequot too 😂😂 (EWW PURSUER DIE DIE)
 	   ok thats all byebye
 
