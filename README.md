@@ -7,3 +7,4 @@ hi.. hello.. i am the one and only lexi (heavy jok)
 
 ![dick-figures](https://github.com/user-attachments/assets/9705013f-9230-42b5-9d5a-d398ba0f8f50) ![dick-figures-dick-figures](https://github.com/user-attachments/assets/eb72a2a6-8876-40cf-8eda-30c3819895d6)
 
+![dick-figures-red-dick-figures (1)](https://github.com/user-attachments/assets/b11fe889-4898-421a-b8d6-975c2ab61271)
