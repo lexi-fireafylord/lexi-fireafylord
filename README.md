@@ -3,8 +3,6 @@ hi.. hello.. i am the one and only lexi (heavy jok)
    i really really REALLY love artful💘. i guess i kinda like pursuer and mequot too 😂😂 (EWW PURSUER DIE DIE)
 	   ok thats all byebye
 
-![d4de7b22f68a9e9db2780f5e51f50a5b](https://github.com/user-attachments/assets/f4041709-04b0-433a-8847-5e6970b17f03)
-
 
 ![dick-figures](https://github.com/user-attachments/assets/9705013f-9230-42b5-9d5a-d398ba0f8f50) ![dick-figures-red-dick-figures (1)](https://github.com/user-attachments/assets/9b4c370a-327d-41ea-847c-dfcc43be59b4)
 
