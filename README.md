@@ -5,3 +5,6 @@ yoo yoo yoo its me, lexi! 😳
 ![firey-leafy](https://github.com/user-attachments/assets/d1769d61-8a54-46e0-ac7c-16d5d45f6b4a)
 
 ummm id say i also really lik.. fireafy, redblue and a BIT of fireoiny 🤣🤣🤣🤣🤣 ok
+
+
+lelee i dont have a specific dni list i jsut block freely 🤤
