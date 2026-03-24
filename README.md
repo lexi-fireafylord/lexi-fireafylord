@@ -1,5 +1,6 @@
 
-<img width="878" height="293" alt="wither skeleton sit ok" src="https://github.com/user-attachments/assets/7da26955-c09d-4ab9-b20e-9e5fb3c442e4" />
+![70cff330-91de-4932-8064-0a98f2e33846](https://github.com/user-attachments/assets/e2d8e5eb-21d0-4f33-be83-4a285b91c038)
+
 
 yoo yoo yoo its me, lexi! 😳
     i dont reall y know what to add here so im just gonn.. say my current interests👀: *dick figures*, ***bfdi/bfdia/bfb***, *a reGect*, **objectified**, regretevator, eddsworld, mr pickles, dandys world, ***evade***, *lapfox*, **south park**, everything is broken (htf), *minecraft*, *starters*, bedfellows, **fnf**, *pokemon*, **monster school** and dod (a tiny bit). yea!
