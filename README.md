@@ -2,7 +2,7 @@
 <img width="878" height="293" alt="wither skeleton sit ok" src="https://github.com/user-attachments/assets/7da26955-c09d-4ab9-b20e-9e5fb3c442e4" />
 
 yoo yoo yoo its me, lexi! 😳
-    i dont reall y know what to add here so im just gonn.. say my current interests👀: *dick figures*, ***bfdi/bfdia/bfb***, *a reGect*, **objectified**, regretevator, eddsworld, mr pickles, dandys world, ***evade***, *lapfox*, **south park**, everything is broken (htf), *minecraft*, *starters*, bedfellows, **fnf**, *pokemon*, monster school and dod (a tiny bit). yea!
+    i dont reall y know what to add here so im just gonn.. say my current interests👀: *dick figures*, ***bfdi/bfdia/bfb***, *a reGect*, **objectified**, regretevator, eddsworld, mr pickles, dandys world, ***evade***, *lapfox*, **south park**, everything is broken (htf), *minecraft*, *starters*, bedfellows, **fnf**, *pokemon*, **monster school** and dod (a tiny bit). yea!
 
 ![dick-figures-red-dick-figures (1)](https://github.com/user-attachments/assets/b11fe889-4898-421a-b8d6-975c2ab61271)
 ![firey-leafy](https://github.com/user-attachments/assets/d1769d61-8a54-46e0-ac7c-16d5d45f6b4a)
