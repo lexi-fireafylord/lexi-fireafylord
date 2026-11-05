@@ -9,6 +9,6 @@ ummm id say i also really lik.. fireafy, redblue and a BIT of fireoiny 🤣🤣�
 
 lelee i dont have a specific dni list i jsut block freely 🤤
 
-**HI PLS PLS PLS PLS PLS PLS CUDDL WITH ME** 🥺 im 90% of the time offtab so sorry if i answer late to yor whispers or dont answer you in chat directly ![4bcf5e07-b779-4175-9093-aee774e13bfb](https://github.com/user-attachments/assets/1cd7e0c7-97eb-4311-8250-bdb614eb291e) ![61e5f032-18bc-4197-82b5-c8684fb6d963](https://github.com/user-attachments/assets/4389dd0a-0479-45cf-9fe1-469c2d6e8817)
+**HI PLS PLS PLS PLS PLS PLS CUDDL WITH ME** 🥺 im 90% of the time offtab so sorry if i answer late to yor whispers or dont answer you in chat directly
 
 <img width="300" height="210" alt="karkat-karkat-vantas" src="https://github.com/user-attachments/assets/828efa60-1086-402a-82b1-55818f9c24d8" />
